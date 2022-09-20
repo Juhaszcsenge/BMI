@@ -1,4 +1,4 @@
-# [Juhász Csenge]
+# Juhász Csenge
 
 ## Hogyan kezdj neki?
 
